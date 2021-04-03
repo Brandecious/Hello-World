@@ -1,2 +1,3 @@
 # Hello-World
 Just another repository 
+Hi, I am Brandecious. I dont really know what im doing here but im learning and thats what i like to do! sometimes...
